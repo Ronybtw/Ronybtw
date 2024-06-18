@@ -1,4 +1,5 @@
-https://media1.tenor.com/m/LILLsW3uo8MAAAAC/100-girlfriends-hyakkano.gif
+![Uploading 100-girlfriends-hyakkano.gif…]()
+
 
 <!--
 **Ronybtw/Ronybtw** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
