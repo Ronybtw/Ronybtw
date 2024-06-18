@@ -5,6 +5,14 @@
 Hiii!!!!
 </p>
 
+<p align="center">
+add me on Discord if you want to talk to me.
+</p>
+
+<p align="center">
+<a href="https://discord.com/users/533540605578706965">Ronybtw
+</p>
+
 
 
 <!--
